@@ -1,7 +1,7 @@
 
+![Woman-in-IT-768x323](https://github.com/raginiyampalli/raginiyampalli/assets/7003556/33fbff64-4bb4-4913-9307-c5bd71af58dc)
 
 
-![1b0N](https://user-images.githubusercontent.com/7003556/182380870-c0bcf662-23e4-4087-a1cd-ef2bba1480be.gif)
 
 
 
